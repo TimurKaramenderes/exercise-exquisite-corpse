@@ -20,3 +20,9 @@ Pendant ce temps..
 
 C'est alors qu'une nymphe venant des eaux arides de Garstrèsdur sortit de l'eau criant :
 
+
+>j'ai vue ton avenir Spok, tu te marrira avec le grand et l'unique Darkvador
+
+le probleme c'est que l'interlocuteur de la nymphe n'est pas Spok mais le seul est unique E.T
+
+> excusez moi madame la nymphe mais je me nome E.T pas Spok mais votre profesi est pour moi ou pas du coup ?
