@@ -26,3 +26,9 @@ C'est alors qu'une nymphe venant des eaux arides de Garstrèsdur sortit de l'eau
 le probleme c'est que l'interlocuteur de la nymphe n'est pas Spok mais le seul est unique E.T
 
 > excusez moi madame la nymphe mais je me nome E.T pas Spok mais votre profesi est pour moi ou pas du coup ?
+
+La nymphe lui réponda:
+>Je ne me trompe jamais, on me surnomme "Fabien Olicard le grand mentaliste"!
+
+Spok aka E.T était sur le cul comme on dit par chez moi
+
