@@ -6,3 +6,12 @@ Soudainement, une envie pressante les arrêta...
 
 ![Im the DRQR dwarf](Fi0B.gif)
 
+Pendant ce temps..
+
+![La vue](mina.jpg)
+
+> Seigneur, nous avons un problème!
+
+> Quel est-il Laiglolas ?
+
+> Je suis stuck gold IV.
