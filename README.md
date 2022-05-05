@@ -31,4 +31,3 @@ La nymphe lui réponda:
 >Je ne me trompe jamais, on me surnomme "Fabien Olicard le grand mentaliste"!
 
 Spok aka E.T était sur le cul comme on dit par chez moi
-
