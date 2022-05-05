@@ -23,7 +23,7 @@ C'est alors qu'une nymphe venant des eaux arides de Garstrèsdur sortit de l'eau
 
 >"_J'ai vue ton avenir Spok, tu te marieras avec le grand et l'unique Dark Vador_"
 
-le probleme c'est que l'interlocuteur de la nymphe n'est pas Spok mais le seul est unique E.T
+Le probleme c'est que l'interlocuteur de la nymphe n'est pas Spok mais le seul est unique E.T.
 
 > "_Excusez-moi madame la nymphe mais je me nome E.T, pas Spok mais votre prophétie est pour moi ou pas, du coup_ ?
 
