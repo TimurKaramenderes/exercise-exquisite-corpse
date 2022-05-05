@@ -8,26 +8,26 @@ Soudainement, une envie pressante les arrêta...
 
 Pendant ce temps..
 
-![La vue](mina.jpg)
+![La vue](minastitrique.png)
 
-> Seigneur, nous avons un problème!
+> "_Seigneur, nous avons un problème!_"
 
-> Quel est-il Laiglolas ?
+> "_Quel est-il Laiglolas ?_"
 
-> Je suis stuck gold IV.
+> "_Je suis stuck Gold IV._"
 
-> Est-ce vous le grand Golderack, Seigneur des contrées lointaines du fort de Fort Fort Lointan ?
+> "_Est-ce vous le grand Golderack, Seigneur des contrées lointaines du fort de Fort Fort Lointan?_"
 
 C'est alors qu'une nymphe venant des eaux arides de Garstrèsdur sortit de l'eau criant :
 
 
->j'ai vue ton avenir Spok, tu te marrira avec le grand et l'unique Darkvador
+>"_J'ai vue ton avenir Spok, tu te marieras avec le grand et l'unique Dark Vador_"
 
-le probleme c'est que l'interlocuteur de la nymphe n'est pas Spok mais le seul est unique E.T
+Le probleme c'est que l'interlocuteur de la nymphe n'est pas Spok mais le seul est unique E.T.
 
-> excusez moi madame la nymphe mais je me nome E.T pas Spok mais votre profesi est pour moi ou pas du coup ?
+> "_Excusez-moi madame la nymphe mais je me nome E.T, pas Spok mais votre prophétie est pour moi ou pas, du coup_ ?
 
-La nymphe lui réponda:
->Je ne me trompe jamais, on me surnomme "Fabien Olicard le grand mentaliste"!
+La nymphe lui répondit:
+>"_Je ne me trompe jamais, on me surnomme "Fabien Olicard le grand mentaliste"!_"
 
-Spok aka E.T était sur le cul comme on dit par chez moi
+Spok aka "_E.T_" était sur "_le cul_" comme on dit par chez moi.
